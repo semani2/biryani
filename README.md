@@ -44,6 +44,7 @@
 3. Fried onions (available at all the Indian stores, highly recommend buying this to frying onions yourself)
 4. Ghee (Clarified Butter): 1/2 cup
 5. Basmati Rice: 1 cup 
+6. Ginger & Garlic Paste
 
 ### Kitchen equipment
 1. Pressure cooker / Dutch Oven if available (a deep sauce pan with a lid can work too)
@@ -77,10 +78,11 @@
 ### Cook the veggies (T - 1 hour)
 1. Take a deep sauce pan or a dutch oven and place it on the stove. Set the flame to medium.
 2. Add 2 tbsp of ghee and 1 tsp of cooking oil to the pan.
-3. As the oil starts to heat up, transfer the marinated vegetables to the sauce pan. 
-4. Gently stir the contents occasionally as they start to cook. You don't want to stir a lot as it might break up the paneer. 
-5. Continue to cook until the vegetables are 75% done, this should usually take around 20 - 25 mins.
-6. Once done transfer contents into a different container.
+3. As the oil starts to heat up, add 1 tbsp of ginger & garlic paste.
+4. Once the raw flavor of the paste reduces, transfer the marinated vegetables to the sauce pan.
+5. Gently stir the contents occasionally as they start to cook. You don't want to stir a lot as it might break up the paneer. 
+6. Continue to cook until the vegetables are 75% done, this should usually take around 20 - 25 mins.
+7. Once done transfer contents into a different container.
 
 ### Cook the rice (T - 30 mins)
 1. Take a deep sauce pan (can re-use the one you cooked the veggies in) and place it on the stove. Set the flame to high.
